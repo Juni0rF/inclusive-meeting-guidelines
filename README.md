@@ -31,4 +31,4 @@ ShareAlike — If you remix, transform, or build upon the material, you must dis
 
 You can read the full licence details at: https://creativecommons.org/licenses/by-nc-sa/4.0/
 
-Please contact us for any commercial or other enquiries not answered here.
+Please contact us on accessibility@coop.co.uk for any commercial or other enquiries not answered here.
